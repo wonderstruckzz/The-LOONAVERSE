@@ -7,6 +7,9 @@ Semi-popular k-pop band LOONA is the origin of the Loonaverse, a in music video 
 
 These 3 units come together to form a team who are forced to "save the world," or, I think. This is a really confusing subject. They live on a **mobius strip**, and all their adventures are held on this strip. 
 
+![Mobius Strip][https://www.google.com/url?sa=i&url=https%3A%2F%2Fimgur.com%2Fr%2FLOONA%2FVxZX9sC&psig=AOvVaw1ozNInDVZw0aywPbEc6w9m&ust=1664941448062000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCKj25LHUxfoCFQAAAAAdAAAAABAS]
+
+
 ### INTRODUCING THE SUB-UNITS
 
 #### LOONA 1/3
