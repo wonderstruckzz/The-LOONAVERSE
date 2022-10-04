@@ -7,7 +7,7 @@ Semi-popular k-pop band LOONA is the origin of the Loonaverse, a in music video 
 
 These 3 units come together to form a team who are forced to "save the world," or, I think. This is a really confusing subject. They live on a **mobius strip**, and all their adventures are held on this strip. 
 
-![Alt text](VxZX9sC.png.jpeg)
+![Mobius Strip](VxZX9sC.png.jpeg)
 
 
 ### INTRODUCING THE SUB-UNITS
@@ -40,7 +40,7 @@ This is a 2 out of 12. I'm sorry, Let Me In.
 
 Listen to [Let Me In](https://www.youtube.com/watch?v=6a4BWpBJppI) 
 
-**ViVi - EDILY*
+**ViVi - EDILY**
 
 The cutest song in this series. But it's also about amnesia and robots. It's like gundam but with real people, I think. It's not very clear. I honestly have no idea what happens but she works in a store and sells tapes so that's cute. 
 
@@ -109,6 +109,7 @@ This is a 7/12, but also has one of the best songs ever as a B-side, Girl's Talk
 Listen to [Heart Attack](https://www.youtube.com/watch?v=BVVfMFS3mgc)
 Listen to [Girl's Talk](https://www.youtube.com/watch?v=FqR1bNjFyyw)
 
+![Alt Text](Screen Shot 2022-10-03 at 8.51.27 PM.png)
 **GOWON - ONE AND ONLY** 
 
 One and Only is a rap infused song (not really rap, but. You know.) sang by Gowon. Gowon, in lore, is represented by the butterfly and important in ways that are not seen yet, because of the ongoing lore. She's in love with Olivia Hye, until they break up when she starts to act cold to Olivia Hye because she thinks she cannot trust her with the secret that her, Yves, and Chuu are going to leave Eden. In her song, the OEC members are chasing her and trying to get her to eat a pineapple - her fruit - so she can leave Eden, but she doesn't understand. In her view, Yves is amazing because she helped her become less anxious, and therefore, decides to try and leave on her request. 
