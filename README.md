@@ -88,7 +88,7 @@ I love this song. This is a solid 8/12.
 
 Listen to [LCM](https://www.youtube.com/watch?v=VBbeuXW8Nko)
 
-####YYXY 
+#### YYXY 
 
 YYXY is the best subunit, unbiasedly. They are so much fun. Chuu, Yves, Olivia Hye, and Gowoon live together in a bording school in the middle of nowhere called Eden with no contact with anyone. It's terrifying. There's a lot of gory, weird stuff, so it'll be skipped over. They all love one girl named Yves in different ways, but Yves ends up doiong something that betrays one girl specifically - Olivia Hye. 
 
