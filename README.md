@@ -110,6 +110,7 @@ Listen to [Heart Attack](https://www.youtube.com/watch?v=BVVfMFS3mgc)
 Listen to [Girl's Talk](https://www.youtube.com/watch?v=FqR1bNjFyyw)
 
 ![Alt Text](Screen Shot 2022-10-03 at 8.51.27 PM.png)
+
 **GOWON - ONE AND ONLY** 
 
 One and Only is a rap infused song (not really rap, but. You know.) sang by Gowon. Gowon, in lore, is represented by the butterfly and important in ways that are not seen yet, because of the ongoing lore. She's in love with Olivia Hye, until they break up when she starts to act cold to Olivia Hye because she thinks she cannot trust her with the secret that her, Yves, and Chuu are going to leave Eden. In her song, the OEC members are chasing her and trying to get her to eat a pineapple - her fruit - so she can leave Eden, but she doesn't understand. In her view, Yves is amazing because she helped her become less anxious, and therefore, decides to try and leave on her request. 
