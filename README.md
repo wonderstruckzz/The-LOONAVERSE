@@ -109,7 +109,7 @@ This is a 7/12, but also has one of the best songs ever as a B-side, Girl's Talk
 Listen to [Heart Attack](https://www.youtube.com/watch?v=BVVfMFS3mgc)
 Listen to [Girl's Talk](https://www.youtube.com/watch?v=FqR1bNjFyyw)
 
-![Alt text](Screen Shot 2022-10-03 at 8.51.27 PM.jpg)
+![Alt text](Screen Shot 2022-10-03 at 8.51.27 PM.jpeg)
 
 **GOWON - ONE AND ONLY** 
 
