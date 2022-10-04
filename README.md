@@ -19,6 +19,7 @@ LOONA 1/3 consists of members Heejin, Hyunjin, Vivi, and Haseul, with honorary m
  Listen to [ViViD](https://www.youtube.com/watch?v=-FCYE87P5L0)
  
  **HYUNJIN - Around You**
+
 Hyunjin's Around You has a lot of cat heads. I cannot tell you what happens, honestly, but there's a lot of cats. She bonds with cats and gets a bracelet from a cat. She really likes cats. It's a cute cat, to be far. 
 
 I rank this 11 out of 12. 
@@ -26,6 +27,7 @@ I rank this 11 out of 12.
 Listen to [Around You](https://www.youtube.com/channel/UCOJplhB0wGQWv9OuRmMT-4g)
 
 **HASEUL - Let Me In**
+
 This is one of the best songs in existence. She shoots a bird, and somehow it turns into a feather. But it's so classy. The vibes are so nice. She canonically is the coolest person in the Loonaverse. 
 
 This is a 2 out of 12. I'm sorry, Let Me In. 
@@ -33,6 +35,7 @@ This is a 2 out of 12. I'm sorry, Let Me In.
 Listen to [Let Me In](https://www.youtube.com/watch?v=6a4BWpBJppI) 
 
 **ViVi - Everyday I Love You**
+
 The cutest song in this series. But it's also about amnesia and robots. It's like gundam but with real people, I think. It's not very clear. I honestly have no idea what happens but she works in a store and sells tapes so that's cute. 
 
 This is a 12/12.
@@ -50,3 +53,11 @@ Yeojin, at the time of the LOONA project, was only 14, so she could not debut be
  I rank this a 6/12. 
 
 Listen to [Kiss Later](https://www.youtube.com/watch?v=thpTOAS1Vgg)
+
+#### ODD EYE CIRCLE
+
+ODD EYE CIRCLE, otherwise known as OEC, are the anime protagonists of the LOONAVERSE. Made up of Kim Lip, Choerry, and Jinsoul, they represent the funky fresh in the LOONAVERSE. They live in the Middle Earth, and are each strongly connected to a color - Choerry to Purple, Kim Lip to Red, and Jinsoul to Blue. You may ask, why is it almost the primary colors, but not exactly? The anwer is easy. Kidnapping. 
+
+**KIM LIP - Eclipse**
+
+Eclipse truly changed the world. However, to go over the lore, Kim Lip is basically the Naruto in this universe. She's super powerful, good at running, and good at crying. 
