@@ -16,6 +16,8 @@ LOONA 1/3 consists of members Heejin, Hyunjin, Vivi, and Haseul, with honorary m
  
  Personally, I would rate ViVid a solid 7.5/10, and 7th out of the 12 songs. 
  
+ Listen to [ViViD](https://www.youtube.com/watch?v=-FCYE87P5L0)
+ 
  **HYUNJIN - Around You**
 Hyunjin's Around You has a lot of cat heads. I cannot tell you what happens, honestly, but there's a lot of cats. She bonds with cats and gets a bracelet from a cat. She really likes cats. It's a cute cat, to be far. 
 
