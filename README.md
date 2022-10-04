@@ -107,6 +107,7 @@ Heart Attack is sang by Chuu, who, in lore, is in love with Yves. She wants Yves
 This is a 7/12, but also has one of the best songs ever as a B-side, Girl's Talk. 
 
 Listen to [Heart Attack](https://www.youtube.com/watch?v=BVVfMFS3mgc)
+
 Listen to [Girl's Talk](https://www.youtube.com/watch?v=FqR1bNjFyyw)
 
 ![A clock!](loona.jpg)
