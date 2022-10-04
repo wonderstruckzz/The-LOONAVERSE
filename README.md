@@ -23,15 +23,21 @@ Hyunjin's Around You has a lot of cat heads. I cannot tell you what happens, hon
 
 I rank this 11 out of 12. 
 
+Listen to [Around You](https://www.youtube.com/channel/UCOJplhB0wGQWv9OuRmMT-4g)
+
 **HASEUL - Let Me In**
 This is one of the best songs in existence. She shoots a bird, and somehow it turns into a feather. But it's so classy. The vibes are so nice. She canonically is the coolest person in the Loonaverse. 
 
 This is a 2 out of 12. I'm sorry, Let Me In. 
 
+Listen to [Let Me In](https://www.youtube.com/watch?v=6a4BWpBJppI) 
+
 **ViVi - Everyday I Love You**
 The cutest song in this series. But it's also about amnesia and robots. It's like gundam but with real people, I think. It's not very clear. I honestly have no idea what happens but she works in a store and sells tapes so that's cute. 
 
 This is a 12/12.
+
+Listen to [EDILY](https://www.youtube.com/watch?v=ZNcBZM5SvbY)
 
 #### YEOJIN 
 
@@ -42,3 +48,5 @@ Yeojin, at the time of the LOONA project, was only 14, so she could not debut be
  Yeojin's Kiss Later is funky. It's fresh. It's everything good about the world. It's rainbows and sunshine. There's a person with a frog head. It's glorious. It's amazing. It's the best song ever. 
  
  I rank this a 6/12. 
+
+Listen to [Kiss Later](https://www.youtube.com/watch?v=thpTOAS1Vgg)
